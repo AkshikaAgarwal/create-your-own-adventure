@@ -29,5 +29,5 @@ warm, steamy cups held fully out as they chanted "mellows, mellows".
 It eirily reminded you of a story you read as a young fluff, but the chant was, "brains, brains".
 
 You couldn't quite decide whether you were awake or asleep, 
-but as time was running out, you remembered something your mother always told you...
+but as time was running out, you remembered something your mother always told you!
 [Mom's Advice](../advice_from_mother/advice_from_mother.md)
